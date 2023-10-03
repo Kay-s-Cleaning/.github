@@ -16,13 +16,22 @@ Please dedicate yourselves to helping support local small business owners.
 Help put women/Men such as myself back in charge of our own dedication to our small businesses. And our lives in control of our passions for helping you in return.
 Thank you for reading and donating to my cause. with your contributions; your helping to grow more jobs and businesses locally for small businesses owners!!
 Rebuilding,and recovering after real tear up from pandemic. 
-Your appreciated and loved 🫶
+     you are appreciated and Loved🫶
+Here is my info along with the few ways to donate your Life changing contributions;
+martiekayenglind@gmail.com 
+417-315-1635 
+chime sign is: $Martie-Englind333
+Cashapp is: $mkk47t3
+also you can reach me on Twitter username:
+@martieenglind
+
+Thank you again for your Loving hearts!!!
+     
 
 
 
-**Here are some ideas to get you started:**
 
-🙋‍♀️ A short introduction - what is your organization all about?
+
 🌈 Contribution guidelines - how can the community get involved?
 👩‍💻 Useful resources - where can the community find your docs? Is there anything else the community should know?
 🍿 Fun facts - what does your team eat for breakfast?
